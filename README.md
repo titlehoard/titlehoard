@@ -12,8 +12,12 @@
 <p align="center"> ꒰ <a href="https://github.com/title-town">title-town</a>, <a href="https://gitHub.com/Ponytowns-rewards">@Ponytowns-rewards</a> <a href="https://github.com/pt-players">@pt-players</a> <a href="https://github.com/pt-awards">@pt-awards</a> <a href="https://github.com/ponytowners">@ponytowners</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/pt-stars">@pt-stars</a> ꒱
 </p>
 
-prettiest pony
+✄ $${\color{#ccbbcb}⠀๑⠀prettiest\space pony}$$ : n/a
 
-AFKers
+✄ $${\color{#ccbbcb}⠀๑⠀prettiest\space github}$$ : n/a
 
-cuddliest
+✄ $${\color{#ccbbcb}⠀๑⠀well\space known\space player}$$ : n/a
+
+✄ $${\color{#ccbbcb}⠀๑⠀AFKers}$$ : n/a
+
+$${\color{#4e444f}⠀๑⠀more\space will\space be\space added..}$$
