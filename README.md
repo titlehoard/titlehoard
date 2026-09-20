@@ -13,6 +13,8 @@
 <p align="center"> ꒰ <a href="https://github.com/title-town">title-town</a>, <a href="https://gitHub.com/Ponytowns-rewards">@Ponytowns-rewards</a> <a href="https://github.com/pt-players">@pt-players</a> <a href="https://github.com/pt-awards">@pt-awards</a> <a href="https://github.com/ponytowners">@ponytowners</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/pt-stars">@pt-stars</a> ꒱
 </p>
 
+![](https://i.postimg.cc/QdfmWXYn/pony-town-NOMINATEURSELFNOW-applause2-padded-4x-ezgif-com-remove-background-(2).gif) ⬅ the mascot
+
 <p align="center">
   <img src="https://i.postimg.cc/x14Qwdwp/5hkrb2.png" width="200%">
 </p>
