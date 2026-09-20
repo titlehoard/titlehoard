@@ -23,9 +23,11 @@
 
 ✄ $${\color{#ccbbcb}⠀๑⠀well\space known\space player}$$ : n/a
 
-✄ $${\color{#ccbbcb}⠀๑⠀AFKers}$$ : n/a
+✄ $${\color{#ccbbcb}⠀๑⠀most\space AFKers}$$ : <a href="https://github.com/0nyvr">@0nyvr</a>
 
 ✄ $${\color{#ccbbcb}⠀๑⠀stylish}$$ : n/a
+
+✄ $${\color{#ccbbcb}⠀๑⠀ORGANICian\space 😂😂😂}$$ : <a href="https://github.com/0nyvr">@0nyvr</a>
 
 $${\color{#4e444f}more\space will\space be\space added..}$$
 
@@ -45,3 +47,5 @@ $${\color{#4e444f}more\space will\space be\space added..}$$
 
 <p align="center"> $${\color{#ccbbcb}꒰১𖢒໒꒱՞}$$
 </p>
+
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/0nyvr">@0nyvr</a> $${\color{#4e444f}is\space ponytown's\space lobi\space kalobi\space (mau\space makan\space apa)\space and\space gix\space busok\space (mau\space makan\space apa)!}$$
