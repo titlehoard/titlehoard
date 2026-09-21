@@ -4,16 +4,16 @@
   <img src="https://i.postimg.cc/bwh7ttQr/Tak-berjudul344-20260920120410.png" width="200%">
 </p>
 
-<p align="center"> last updated: 20/9
+<p align="center"> last updated: 21/9
 </p>
-<p align="right"> updated every friday & weekend!
+<p align="right"> updated every free time!
 </p>
 <p align="center"> disclaimer: i made this for entertainment purposes only, heavily inspired by:
 </p>
 <p align="center"> ꒰ <a href="https://github.com/title-town">title-town</a>, <a href="https://gitHub.com/Ponytowns-rewards">@Ponytowns-rewards</a> <a href="https://github.com/pt-players">@pt-players</a> <a href="https://github.com/pt-awards">@pt-awards</a> <a href="https://github.com/ponytowners">@ponytowners</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/pt-stars">@pt-stars</a> ꒱
 </p>
 
-![](https://i.postimg.cc/QdfmWXYn/pony-town-NOMINATEURSELFNOW-applause2-padded-4x-ezgif-com-remove-background-(2).gif) ⬅ the mascot
+![](https://i.postimg.cc/QdfmWXYn/pony-town-NOMINATEURSELFNOW-applause2-padded-4x-ezgif-com-remove-background-(2).gif) ⬅ <p align="right"> feel free to cuddle :-3 </p>
 
 <p align="center">
   <img src="https://i.postimg.cc/x14Qwdwp/5hkrb2.png" width="200%">
