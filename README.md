@@ -50,4 +50,12 @@ $${\color{#4e444f}more\space will\space be\space added..}$$
 <p align="center"> $${\color{#ccbbcb}꒰১𖢒໒꒱՞}$$
 </p>
 
-✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/0nyvr">@0nyvr</a> $${\color{#4e444f}is\space ponytown's\space lobi\space kalobi\space (mau\space makan\space apa)\space and\space gix\space busok\space (mau\space makan\space apa)!}$$
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/0nyvr">@0nyvr</a> $${\color{#4e444f}is\space ponytown's\space lobi\space kalobi\space (mau\space makan\space apa)\space and\space gix\space busok\space (mau\space makan\space apa)\space !}$$
+
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/Ham-milton">@Ham-milton</a> $${\color{#4e444f}is\space ponytown's\space scared\space french\space (guts\space and\space blackpowder)\space and\space jean\space lannes\space (napoleonic\space wars)\space !}$$
+
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/SukunaXRyomen">@SukunaXRyomen</a> $${\color{#4e444f}is\space ponytown's\space gojo\space satoru\space (jujutsu\space kaisen)\space !}$$
+
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/T0R4X">@T0R4X</a> $${\color{#4e444f}is\space ponytown's\space medic/herbert\space ludwig\space (team\space fortress\space 2)\space !}$$
+
+✄ $${\color{#ccbbcb}⠀๑}$$ <a href="https://github.com/Uictim">@Uictim</a> $${\color{#4e444f}is\space ponytown's\space the\space dark\space lord\space (animator\space vs\space animation)\space !}$$
